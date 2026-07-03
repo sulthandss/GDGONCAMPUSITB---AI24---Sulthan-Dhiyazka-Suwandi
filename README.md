@@ -1,1 +1,1 @@
-# GDGONCAMPUSITB---AI24---Sulthan-Dhiyazka-Suwandi
+# Submission For GDGONCAMPUSITB
